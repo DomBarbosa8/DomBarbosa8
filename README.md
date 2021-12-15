@@ -1,4 +1,4 @@
-  Oi, meu nome é Dominic, mas pode me chamar de Dom! 🏳️‍⚧️
+  Oi, meu nome é Dominic, mas prefiro ser chamado de Dom! 🏳️‍⚧️
    
 
 
